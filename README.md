@@ -27,9 +27,6 @@
 
 ![Gambling Fernando🤑🤑](https://github.com/user-attachments/assets/5ecbd22e-5548-482f-9586-d3ff99de1be8)
 
-
-![Screenshot_20251228_135007](https://github.com/user-attachments/assets/4ab25e30-78c4-4a95-ad97-519d51cd533e)
-
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
 ‎<H3>‎<code style="color : #7703a1">M U S I C</code></H3>
 
