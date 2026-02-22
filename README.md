@@ -13,8 +13,6 @@
 
 
 
-![Teenage dirtbag](https://github.com/user-attachments/assets/9d5a0a4b-de4d-4ec2-aa04-f03c2a3e8a80)
-
 
 
 ![tumblr_6052a87722156ecb140360ddacbc4b6c_909c5a24_640](https://github.com/user-attachments/assets/f015781e-fed3-4a95-82fe-bc064338e7a9)
@@ -26,6 +24,10 @@
 
 
 𝙸 𝙿𝚛𝚎𝚟𝚊𝚒𝚕, 𝚂𝚢𝚜𝚝𝚎𝚖 𝙾𝚏 𝙰 𝙳𝚘𝚠𝚗, 𝙻𝚎𝚍 𝚉𝚎𝚙𝚙𝚎𝚕𝚒𝚗, 𝙼𝚎𝚝𝚊𝚕𝚕𝚒𝚌𝚊, 𝚁𝚊𝚛𝚎 𝙰𝚖𝚎𝚛𝚒𝚌𝚊𝚗𝚜, 𝚃𝚑𝚛𝚎𝚎 𝙳𝚊𝚢𝚜 𝙶𝚛𝚊𝚌𝚎, 1 800 𝙿𝙰𝙸𝙽, 𝚂𝚊𝚠𝚢𝚎𝚛 𝙷𝚒𝚕𝚕, 𝙳𝚘𝚖𝚒𝚗𝚒𝚌 𝙵𝚒𝚔𝚎, 𝙴𝚞𝚛𝚘𝚝𝚛𝚒𝚙𝚙, 𝙿𝚒𝚎𝚛𝚌𝚎 𝚃𝚑𝚎 𝚅𝚎𝚒𝚕, 𝙼𝚒𝚗𝚍𝚕𝚎𝚜𝚜 𝚂𝚎𝚕𝚏 𝙸𝚗𝚍𝚞𝚕𝚐𝚎𝚗𝚌𝚎, 𝙼𝚎𝚊𝚜𝚘𝚛𝚊, 𝙿𝚛ö𝚣, 𝙼𝚒𝚐𝚊𝚜, 𝙰𝚗𝚍 𝙾𝚗𝚎, 𝙳𝚎𝚟𝚒 𝙼𝚌𝚌𝚊𝚕𝚕𝚒𝚘𝚗, 𝙰𝚜𝚝𝚎𝚛𝚒𝚊, 𝙺𝚎𝚝𝚜4𝚎𝚔𝚒, 𝚃𝚑𝚊𝚝 𝙷𝚊𝚗𝚍𝚜𝚘𝚖𝚎 𝙳𝚎𝚟𝚒𝚕.
+
+
+![Teenage dirtbag](https://github.com/user-attachments/assets/9d5a0a4b-de4d-4ec2-aa04-f03c2a3e8a80)
+
 
 
 ![tumblr_6052a87722156ecb140360ddacbc4b6c_909c5a24_640](https://github.com/user-attachments/assets/0cec9eee-0b04-462d-b797-666b6678e8e7)
