@@ -2,7 +2,7 @@
 ![tumblr_372a8c6c6d289f9b8860f52f9ef1e225_b10d9204_1280 gif](https://github.com/user-attachments/assets/e34823e4-bd77-4071-8150-2d2a042473f9)
 ![tumblr_a6864f61b669e72a14744c7394257284_cde084fd_500 gif](https://github.com/user-attachments/assets/b0626ad3-c767-4dea-bd32-f8401783f6d8)
 
-𝙸 𝙽 𝚃 𝙴 𝚁 𝙴 𝚂 𝚃 𝚂:
+<img width="2048" height="578" alt="IMG_20260223_002315" src="https://github.com/user-attachments/assets/2d336db0-378b-42bb-be34-27f0877aab8b" />
 ‎
 
 
@@ -20,7 +20,9 @@
 ![tumblr_6052a87722156ecb140360ddacbc4b6c_909c5a24_640](https://github.com/user-attachments/assets/f015781e-fed3-4a95-82fe-bc064338e7a9)
 
 
-𝙼 𝚄 𝚂 𝙸 𝙲:
+<img width="2048" height="578" alt="Untitled196_20260223002255_edit_746210505978840" src="https://github.com/user-attachments/assets/c0d04d85-9c1d-408a-bd1b-5a20be1cdaaf" />
+
+
 
 
 𝙸 𝙿𝚛𝚎𝚟𝚊𝚒𝚕, 𝚂𝚢𝚜𝚝𝚎𝚖 𝙾𝚏 𝙰 𝙳𝚘𝚠𝚗, 𝙻𝚎𝚍 𝚉𝚎𝚙𝚙𝚎𝚕𝚒𝚗, 𝙼𝚎𝚝𝚊𝚕𝚕𝚒𝚌𝚊, 𝚁𝚊𝚛𝚎 𝙰𝚖𝚎𝚛𝚒𝚌𝚊𝚗𝚜, 𝚃𝚑𝚛𝚎𝚎 𝙳𝚊𝚢𝚜 𝙶𝚛𝚊𝚌𝚎, 1 800 𝙿𝙰𝙸𝙽, 𝚂𝚊𝚠𝚢𝚎𝚛 𝙷𝚒𝚕𝚕, 𝙳𝚘𝚖𝚒𝚗𝚒𝚌 𝙵𝚒𝚔𝚎, 𝙴𝚞𝚛𝚘𝚝𝚛𝚒𝚙𝚙, 𝙿𝚒𝚎𝚛𝚌𝚎 𝚃𝚑𝚎 𝚅𝚎𝚒𝚕, 𝙼𝚒𝚗𝚍𝚕𝚎𝚜𝚜 𝚂𝚎𝚕𝚏 𝙸𝚗𝚍𝚞𝚕𝚐𝚎𝚗𝚌𝚎, 𝙼𝚎𝚊𝚜𝚘𝚛𝚊, 𝙿𝚛ö𝚣, 𝙼𝚒𝚐𝚊𝚜, 𝙰𝚗𝚍 𝙾𝚗𝚎, 𝙳𝚎𝚟𝚒 𝙼𝚌𝚌𝚊𝚕𝚕𝚒𝚘𝚗, 𝙰𝚜𝚝𝚎𝚛𝚒𝚊, 𝙺𝚎𝚝𝚜4𝚎𝚔𝚒, 𝚃𝚑𝚊𝚝 𝙷𝚊𝚗𝚍𝚜𝚘𝚖𝚎 𝙳𝚎𝚟𝚒𝚕.
