@@ -1,47 +1,52 @@
-‎<H3> <code style="color : #7703a1">I N T E R E S T S</code></H3>
-‎‎
 
-ᴶᵒʳⁱᵏᴿᵘˡⁱᵗ, ᴹᴵᴳᴬˢ, ᴹᵉᵃˢᵒʳᵃ, ᴱʳⁿᵉˢᵗ ᴹᵉʳᵏᵉˡ, ᴾʳöᶻ, ᴬˢᵗᵉʳⁱᵃ, ᴷᵉᵗˢ⁴ᵉᵏⁱ, ⁶ᵃʳᵉˡʸʰᵘᵐᵃⁿ, ᴼᵈᵉᵗᵃʳⁱ, ᴸʸᵗʳᵃ, ⱽʸᶻᵉʳ, ᴰ³ʳ, ᴬⁿᵈ ᴼⁿᵉ, ᴹᵒᵒⁿ ᵂᵃˡᵏᵉʳ, ᵂⁱˡˡ ᵂᵒᵒᵈ ᵃⁿᵈ ᵗʰᵉ ᵀᵃᵖᵉʷᵒʳᵐˢ, ᵀʰᵃᵗ ᴴᵃⁿᵈˢᵒᵐᵉ ᴰᵉᵛⁱˡ, ᴵᴬᴹˣ, ᴹⁱˢˢ ᶜᵒⁿˢᵗʳᵘᶜᵗⁱᵒⁿ, ᵃⁿᵈ ᴰᵉᵛⁱ ᴹᶜᶜᵃˡˡⁱᵒⁿ.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎
+![tumblr_372a8c6c6d289f9b8860f52f9ef1e225_b10d9204_1280 gif](https://github.com/user-attachments/assets/e34823e4-bd77-4071-8150-2d2a042473f9)
+![tumblr_a6864f61b669e72a14744c7394257284_cde084fd_500 gif](https://github.com/user-attachments/assets/b0626ad3-c767-4dea-bd32-f8401783f6d8)
 
-
-
-ᴾᵃᴿᵃᵖᵖᵃ,‎ ‎ᶠᵒʳᵐᵘˡᵃ ¹, ᴮʳᵒᵒᵏˡʸⁿ ⁹⁹, ᴳᵒᵒᵈ ᴼᵐᵉⁿˢ, ᴿᵉᵈ ᵂʰⁱᵗᵉ & ᴿᵒʸᵃˡ ᴮˡᵘᵉ, ᴳʰᵒˢᵗ ᵒᶠ ᵀˢᵘˢʰⁱᵐᵃ/ʸᵒᵗᵉⁱ, ᴹᵒʳᵗᵃˡ ᴷᵒᵐᵇᵃᵗ, ᴰⁱˢᵖᵃᵗᶜʰ, ᴳᵃᵐᵉˢ ᵇʸ ᴮˡᵃᶜᵏ-ᵉʸᵉᵈ ᴾʳⁱᵉˢᵗ/ᴾᵘᵖᵖᵉᵗᶜᵒᵐᵇᵒ, ᴿᵒᵇˡᵒˣ.‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-![492b3e6f-d263-47db-8152-d13f6fb3b495](https://github.com/user-attachments/assets/5a94e898-f78d-4f63-9c07-41a7eeb6d42e)
-
-
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ <H3>‎<code style="color : #7703a1">D N I</code></H3>
-
+𝙸 𝙽 𝚃 𝙴 𝚁 𝙴 𝚂 𝚃 𝚂:
 ‎
-¹.) *ᴺˢᶠᵂ*, ᵍᵒʳᵉ ⁱˢ ᵗᵒˡᵉʳᵃᵇˡᵉ, ᵇᵘᵗ ʷʰᵉⁿ ʸᵒᵘʳ ʷᵒʳᵈˢ ᵗʳᵉᵃᵈ ⁱⁿᵗᵒ ˢ³ˣᵘᵃˡ ᵗᵉʳʳⁱᵗᵒʳʸ, ʸᵒᵘ'ʳᵉ ᵇᵒᵘⁿᵈ  ᵗᵒ ᵍᵉᵗ ᵇˡᵒᶜᵏᵉᵈ
+
+
+𝙵𝚘𝚛𝚖𝚞𝚕𝚊 1,  𝙶𝚃 𝚆𝚘𝚛𝚕𝚍 𝙲𝚑𝚊𝚕𝚕𝚎𝚗𝚐𝚎,  𝙼𝚘𝚝𝚘𝙶𝙿,  𝙻𝚎 𝙼𝚊𝚗𝚜 24𝙷,  𝙶𝚘𝚘𝚍 𝙾𝚖𝚎𝚗𝚜,  𝚁𝚎𝚍 𝚆𝚑𝚒𝚝𝚎 & 𝚁𝚘𝚢𝚊𝚕 𝙱𝚕𝚞𝚎,  𝙱𝚛𝚘𝚔𝚎𝚋𝚊𝚌𝚔 𝙼𝚘𝚞𝚗𝚝𝚊𝚒𝚗,  𝙱𝚛𝚘𝚘𝚔𝚕𝚢𝚗 99,  𝙶𝚑𝚘𝚜𝚝 𝚘𝚏 𝚃𝚜𝚞𝚜𝚑𝚒𝚖𝚊/𝚈𝚘𝚝𝚎𝚒,  𝙼𝚘𝚛𝚝𝚊𝚕 𝙺𝚘𝚖𝚋𝚊𝚝,  𝙱𝚕𝚊𝚌𝚔-𝙴𝚢𝚎𝚍 𝙿𝚛𝚒𝚎𝚜𝚝 / 𝙿𝚞𝚙𝚙𝚎𝚝 𝙲𝚘𝚖𝚋𝚘,  𝚁𝚘𝚋𝚕𝚘𝚡,  𝚄𝚗𝚍𝚎𝚛𝚝𝚊𝚕𝚎 / 𝙳𝚎𝚕𝚝𝚊𝚛𝚞𝚗𝚎,  𝙻𝚎𝚐𝚘,  𝙴𝚝𝚌. ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
+
+![_m_](https://github.com/user-attachments/assets/a030c4e5-3dc5-4d4b-8d49-fbbe2faf8ed7)
 
 
 
-².) *ᴮ!ᵍᵒᵗʳʸ*, ᴵ ʷᵒⁿ'ᵗ ᵗᵒˡᵉʳᵃᵗᵉ ᵃⁿʸ ᶠᵒʳᵐ ᵒᶠ ʰᵃᵗᵉ ᵒʳ ⁿᵉᵍᵃᵗⁱᵛⁱᵗʸ ᵗᵒʷᵃʳᵈˢ ᵖᵉᵒᵖˡᵉ ᵒᶠ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ˢᵉˣᵘᵃˡ ᵒʳⁱᵉⁿᵗᵃᵗⁱᵒⁿˢ
-
-
-‎ ‎³.) *ᴱᵈᵍᵉˡᵒʳᵈˢ*, ᵇᵉⁱⁿᵍ ᵃ ᵗʳᵒˡˡ ᵃⁿᵈ ˢᵖᵃᵐᵐⁱⁿᵍ ⁿᵒⁿˢᵉⁿˢᵉ ᴰᴼᴱˢ ᴺᴼᵀ ᵐᵃᵏᵉ ʸᵒᵘ ᵈⁱᶠᶠᵉʳᵉⁿᵗ ᵃⁿᵈ ᵘⁿⁱqᵘᵉ, ⁿᵒᵇᵒᵈʸ'ˢ ⁱᵐᵖʳᵉˢˢᵉᵈ ᵇʸ ʸᵒᵘʳ ᵃᵇⁱˡⁱᵗʸ ᵗᵒ ᵐᵃᵏᵉ ᵒᵗʰᵉʳ ᵖᵉᵒᵖˡᵉ ᵘⁿᶜᵒᵐᶠᵒʳᵗᵃᵇˡᵉ
+![Teenage dirtbag](https://github.com/user-attachments/assets/9d5a0a4b-de4d-4ec2-aa04-f03c2a3e8a80)
 
 
 
-![Gambling Fernando🤑🤑](https://github.com/user-attachments/assets/5ecbd22e-5548-482f-9586-d3ff99de1be8)
+![tumblr_6052a87722156ecb140360ddacbc4b6c_909c5a24_640](https://github.com/user-attachments/assets/f015781e-fed3-4a95-82fe-bc064338e7a9)
 
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ 
-‎<H3>‎<code style="color : #7703a1">M U S I C</code></H3>
+
+𝙼 𝚄 𝚂 𝙸 𝙲:
+
+
+𝙸 𝙿𝚛𝚎𝚟𝚊𝚒𝚕, 𝚂𝚢𝚜𝚝𝚎𝚖 𝙾𝚏 𝙰 𝙳𝚘𝚠𝚗, 𝙻𝚎𝚍 𝚉𝚎𝚙𝚙𝚎𝚕𝚒𝚗, 𝙼𝚎𝚝𝚊𝚕𝚕𝚒𝚌𝚊, 𝚁𝚊𝚛𝚎 𝙰𝚖𝚎𝚛𝚒𝚌𝚊𝚗𝚜, 𝚃𝚑𝚛𝚎𝚎 𝙳𝚊𝚢𝚜 𝙶𝚛𝚊𝚌𝚎, 1 800 𝙿𝙰𝙸𝙽, 𝚂𝚊𝚠𝚢𝚎𝚛 𝙷𝚒𝚕𝚕, 𝙳𝚘𝚖𝚒𝚗𝚒𝚌 𝙵𝚒𝚔𝚎, 𝙴𝚞𝚛𝚘𝚝𝚛𝚒𝚙𝚙, 𝙿𝚒𝚎𝚛𝚌𝚎 𝚃𝚑𝚎 𝚅𝚎𝚒𝚕, 𝙼𝚒𝚗𝚍𝚕𝚎𝚜𝚜 𝚂𝚎𝚕𝚏 𝙸𝚗𝚍𝚞𝚕𝚐𝚎𝚗𝚌𝚎, 𝙼𝚎𝚊𝚜𝚘𝚛𝚊, 𝙿𝚛ö𝚣, 𝙼𝚒𝚐𝚊𝚜, 𝙰𝚗𝚍 𝙾𝚗𝚎, 𝙳𝚎𝚟𝚒 𝙼𝚌𝚌𝚊𝚕𝚕𝚒𝚘𝚗, 𝙰𝚜𝚝𝚎𝚛𝚒𝚊, 𝙺𝚎𝚝𝚜4𝚎𝚔𝚒, 𝚃𝚑𝚊𝚝 𝙷𝚊𝚗𝚍𝚜𝚘𝚖𝚎 𝙳𝚎𝚟𝚒𝚕.
+
+
+![tumblr_6052a87722156ecb140360ddacbc4b6c_909c5a24_640](https://github.com/user-attachments/assets/0cec9eee-0b04-462d-b797-666b6678e8e7)
+
+
+
 
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=default&show_offline=true&background_color=0b2985&interchange=true&profanity=false&bar_color=ffc859">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=default&show_offline=true&background_color=403d3d&interchange=true&profanity=false&bar_color=#1f1d1d">
   </a>
 </p>
 
-![GitHub Views](https://komarev.com/ghpvc/?username=SpeedfastMerc&color=0554ff&label=Soyez+prudent,+étranger+...+Ne+te+perds+pas+...)
 
-![523435044-e8c51371-ecac-41ae-a012-bf9e92245d80](https://github.com/user-attachments/assets/58a4e55e-dd35-46b9-8374-c8e7991759ea)
-![523435079-26f82679-3c56-4fb5-9c97-5648d7034a06](https://github.com/user-attachments/assets/0bb378d2-d492-437e-9023-8ec4e0cdf8cd)
-![523435065-78e7b463-1387-41ff-b1a1-21755e326a16](https://github.com/user-attachments/assets/1cf8dec9-23b7-4e5c-a243-bf8b0da8d48f)
-![523435070-e86c90d9-e80d-4794-8294-5e9d6c0405ee](https://github.com/user-attachments/assets/6f89dc46-4a06-4d3e-afcb-76dace7e57c7)
-![523435068-9c0a289a-8f59-4f9d-8326-220778c85607](https://github.com/user-attachments/assets/8c476ce5-16ba-4595-ac96-be31edac60d9)
-![523435056-41a5c471-6b58-4212-b05d-19d043d2fee4](https://github.com/user-attachments/assets/cccfd2d8-c85e-4c1f-a2a6-c131c5a02541)
-![523435075-b8cd2f2a-823c-471d-9ae8-b01cab89eb37](https://github.com/user-attachments/assets/25d6bdae-e5ed-4814-ac4b-8d62ad9710c5)
+
+
+
+
+![GitHub Views](https://komarev.com/ghpvc/?username=SpeedfastMerc&color=139c27&label=Soyez+prudent,+étranger+...+Ne+te+perds+pas+...)
+
+
+
+
+![tumblr_4dd18186fcae0a774d33a038fbc87716_ee5be352_1280 gif (1)](https://github.com/user-attachments/assets/716d5f37-28a8-4ea9-b8d3-8a3c1d663e46)
+![tumblr_fecc97e32bfe432cacc29a5c9968315e_0e8f780b_1280 gif](https://github.com/user-attachments/assets/72d49836-f7e4-405a-8c4e-caaa777777d2)
+
