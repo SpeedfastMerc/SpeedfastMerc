@@ -16,6 +16,13 @@
   <img width="199" height="209" alt="553206943-a030c4e5-3dc5-4d4b-8d49-fbbe2faf8ed7_edit_13940263614018" src="https://github.com/user-attachments/assets/2e546b01-34db-440a-9be3-bba00049fe5a" />
 </p>
 
+<div align="center"> 
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=false&background_color=1c0500&interchange=false&profanity=false&hide_remaster=false&bar_color=d14600&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
+
+ </div>
+
+
   <p align="center"><img src="https://github.com/user-attachments/assets/716d5f37-28a8-4ea9-b8d3-8a3c1d663e46" width="209" height="25" alt="tumblr_4dd18186fcae0a774d33a038fbc87716_ee5be352_1280" />
 </p>
 <p align="center">
