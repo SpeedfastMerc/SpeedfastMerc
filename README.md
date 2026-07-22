@@ -9,7 +9,8 @@
 ~  <p align="right"> ᛝᛝ </p>
 
 <p align="center">
-  <img width="310" height="250" alt="Untitled274_20260722202401" src="https://github.com/user-attachments/assets/62cbdb82-d122-4ec0-8a0e-f96ce3fca3bc" />
+ 𓏵‧₊˚ ┊ <img width="310" height="250" alt="Untitled274_20260722202401" src="https://github.com/user-attachments/assets/62cbdb82-d122-4ec0-8a0e-f96ce3fca3bc" />
+  ⊹ ࣪ ˖ᛝ
 </p>
 
 <p align="center"> ´ཀ` </p> 
