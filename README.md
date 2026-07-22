@@ -1,7 +1,7 @@
 <p align="center">
-  <img width="310" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
+  <img width="910" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
 </p> <p align="center">
-  <img width="300" height="22" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
+  <img width="900" height="60" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
 </p>
 
 °⊹ ࣪ ˖      
@@ -95,8 +95,8 @@
 
 ×                            𓏲 ๋࣭ ࣪ ˖
   <p align="center">
-    <img width="300" height="20" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
+    <img width="900" height="60" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
   </p> <p align="center">
-  <img width="300" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
+  <img width="910" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
 </p>
 
