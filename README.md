@@ -9,8 +9,20 @@
 <p align="center">࣪ ִֶָ†.⊹ ࣪ ˖ </p>
 ~  <p align="right"> ᛝᛝ </p>
 
+
+<p align="center"> <img width="88" height="31" alt="a69" src="https://github.com/user-attachments/assets/851409b2-5f86-43c1-8f0e-3a3aecb0a3d2" /> <img width="88" height="31" alt="a112" src="https://github.com/user-attachments/assets/d5ebc4f1-23a8-4f2f-8d16-dc302da80a8b" />
+<img width="88" height="31" alt="a32" src="https://github.com/user-attachments/assets/a0986465-d743-4a7e-aec1-3b6dd63a73f7" />
+<img width="88" height="31" alt="a75" src="https://github.com/user-attachments/assets/25438a99-3dce-4494-b9cd-af83754fef71" />
+<img width="88" height="31" alt="a82" src="https://github.com/user-attachments/assets/3096d88a-8110-4033-9169-feba30b5a432" />
+<img width="88" height="31" alt="a125" src="https://github.com/user-attachments/assets/26781e9f-ef40-4889-a989-2077ccd57fe6" />
+<img width="88" height="31" alt="a127" src="https://github.com/user-attachments/assets/ab731a2c-40f0-48ea-a982-9957db19da7f" />
+<img width="88" height="31" alt="a103" src="https://github.com/user-attachments/assets/fc83a8b9-b1fc-4a2a-9594-a3ebef81097c" />
+
+ </p>
+
+ 
 <p align="center">
- 𓏵‧₊˚ ┊ <img width="310" height="250" alt="Untitled274_20260722202401" src="https://github.com/user-attachments/assets/62cbdb82-d122-4ec0-8a0e-f96ce3fca3bc" />
+ 𓏵‧₊˚ ┊ <img width="310" height="250" alt="Untitled274_20260722202401" src="https://github.com/user-attachments/assets/62cbdb82-d122-4ec0-8a0e-f96ce3fca3bc" /> 
   ⊹ ࣪ ˖ᛝ
 </p>
 
