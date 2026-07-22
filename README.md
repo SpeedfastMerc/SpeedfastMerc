@@ -1,19 +1,25 @@
 <p align="center">
   <img width="310" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
-</p>
-<p align="center">
+</p> <p align="center">
   <img width="300" height="22" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
 </p>
 
+°⊹ ࣪ ˖      
+<p align="center">࣪ ִֶָ†.⊹ ࣪ ˖ </p>
+~  <p align="right"> ᛝᛝ </p>
 
 <p align="center">
   <img width="310" height="250" alt="Untitled274_20260722202401" src="https://github.com/user-attachments/assets/62cbdb82-d122-4ec0-8a0e-f96ce3fca3bc" />
 </p>
 
+<p align="center"> ´ཀ` </p> 
+
 <div align="center">
   <details>
     <summary><font color="red"><b>× 𝚂𝚝𝚊𝚖𝚙𝚜 ×</b></font></summary>
    
+  ...
+
   ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙ 
 
 <img width="99" height="56" alt="j17" src="https://github.com/user-attachments/assets/2606dfe1-addc-487d-9baa-70e10dca2fbf" />
@@ -29,16 +35,20 @@
 <img width="99" height="57" alt="i6" src="https://github.com/user-attachments/assets/a23c2d92-fe73-4a4e-8d0d-d1a781033391" />
 <img width="99" height="56" alt="i28" src="https://github.com/user-attachments/assets/174df915-79e0-426c-962a-4bb27c7a8e14" />
 
-  ⋆༺𓆩☠︎︎𓆪༻⋆
+...
 
+  ⋆༺𓆩☠︎︎𓆪༻⋆
+  
   </details>
 </div>
 
 <div align="center">
   <details>
     <summary><font color="red"><b>× 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 ×</b></font></summary>
-   
-    ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
+
+ ...
+
+  ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
     
 <img width="150" height="20" alt="a90" src="https://github.com/user-attachments/assets/a3598d86-0fc3-4928-911a-bbb825a3e8a1" />
 <img width="150" height="20" alt="v16" src="https://github.com/user-attachments/assets/30ae942a-fa8e-4656-940c-5771a081f0c2" />
@@ -66,23 +76,27 @@
 <img width="150" height="20" alt="z15" src="https://github.com/user-attachments/assets/2f7d5085-379c-44af-8106-ff367fb1d486" />
 <img width="150" height="20" alt="v5" src="https://github.com/user-attachments/assets/eb332e5b-5c1c-46e6-9ab9-4443a015371a" />
 
+
+...
+
  ⋆༺𓆩☠︎︎𓆪༻⋆ 
 
   </details>
 </div>
-
+<p align="right"> ⊹ ࣪ ˖  ﾒ  </p>
 
 <div align="center"> 
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=false&background_color=1c0500&interchange=false&profanity=false&hide_remaster=false&bar_color=d14600&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
 
  </div>
+ﾒ.⋆♱     <p align="right"> ╋━ </p>
+<p align="center"> ✮⋆˙ ☠︎︎ ⋆₊ ♱ ˚˖𓍢ִ໋ </p>
 
-
+×                            𓏲 ๋࣭ ࣪ ˖
   <p align="center">
     <img width="300" height="20" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
-  </p>
-<p align="center">
+  </p> <p align="center">
   <img width="300" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
 </p>
 
