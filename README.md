@@ -2,7 +2,8 @@
   <img width="910" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
 </p> <p align="center">
   <img width="900" height="60" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
-</p>
+</p> <p align="center"> <img width="900" height="55" alt="glitterstrawberries" src="https://github.com/user-attachments/assets/8b0deab8-f029-419d-9216-c885abc61749" /> </p>
+
 
 °⊹ ࣪ ˖      
 <p align="center">࣪ ִֶָ†.⊹ ࣪ ˖ </p>
@@ -95,7 +96,8 @@
 <p align="center"> ✮⋆˙ ☠︎︎ ⋆₊ ♱ ˚˖𓍢ִ໋ </p>
 
 ×                            𓏲 ๋࣭ ࣪ ˖
-  <p align="center">
+
+<p align="center"> <img width="900" height="25" alt="firedivider" src="https://github.com/user-attachments/assets/1a987ebf-cf0b-44b9-80c2-87f6c43a43d4" /> </p> <p align="center">
     <img width="900" height="60" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
   </p> <p align="center">
   <img width="910" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
