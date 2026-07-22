@@ -1,20 +1,16 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/e34823e4-bd77-4071-8150-2d2a042473f9" width="220" height="25" alt="tumblr_372a8c6c6d289f9b8860f52f9ef1e225_b10d9204_1280" />
+  <img width="400" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/b0626ad3-c767-4dea-bd32-f8401783f6d8" width="209" height="25" alt="tumblr_a6864f61b669e72a14744c7394257284_cde084fd" />
+  <img width="380" height="24" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
 </p>
-
-
 
 
 <p align="center">
-  <img width="209" height="50" alt="Blink-182_Logo_2022" src="https://github.com/user-attachments/assets/b4fab8f8-599e-4ad5-9e5c-8b3080d326ec" />
-</p>
+  <img width="390" height="300" alt="Untitled274_20260722200548" src="https://github.com/user-attachments/assets/d62b095f-941f-4a6b-85a7-4bd385ebdb73" />
 
-<p align="center">
-  <img width="199" height="209" alt="553206943-a030c4e5-3dc5-4d4b-8d49-fbbe2faf8ed7_edit_13940263614018" src="https://github.com/user-attachments/assets/2e546b01-34db-440a-9be3-bba00049fe5a" />
-</p>
+  </p>
+
 
 <div align="center"> 
   
@@ -23,9 +19,10 @@
  </div>
 
 
-  <p align="center"><img src="https://github.com/user-attachments/assets/716d5f37-28a8-4ea9-b8d3-8a3c1d663e46" width="209" height="25" alt="tumblr_4dd18186fcae0a774d33a038fbc87716_ee5be352_1280" />
-</p>
+  <p align="center">
+    <img width="380" height="21" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
+  </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/72d49836-f7e4-405a-8c4e-caaa777777d2" width="220" height="25" alt="Detumblr_fecc97e32bfe432cacc29a5c9968315e_0e8f780b_1280" />
+  <img width="400" height="24" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
 </p>
 
