@@ -14,7 +14,7 @@
   <details>
     <summary><font color="red"><b>× 𝚂𝚝𝚊𝚖𝚙𝚜 ×</b></font></summary>
    
-    . . . 🌹 
+    ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙ 
 
 <img width="99" height="56" alt="j17" src="https://github.com/user-attachments/assets/2606dfe1-addc-487d-9baa-70e10dca2fbf" />
 <img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/f2be9df8-f6e4-4beb-a1a2-c5863a07c42b" />
@@ -36,7 +36,7 @@
   <details>
     <summary><font color="red"><b>× 𝙱𝚕𝚒𝚗𝚔𝚒𝚎𝚜 ×</b></font></summary>
    
-    . . . ❤️ 
+    ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙
     
 <img width="150" height="20" alt="a90" src="https://github.com/user-attachments/assets/a3598d86-0fc3-4928-911a-bbb825a3e8a1" />
 <img width="150" height="20" alt="v16" src="https://github.com/user-attachments/assets/30ae942a-fa8e-4656-940c-5771a081f0c2" />
