@@ -14,7 +14,7 @@
   <details>
     <summary><font color="red"><b>× 𝚂𝚝𝚊𝚖𝚙𝚜 ×</b></font></summary>
    
-    ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙ 
+  ‿̩͙⊱༒︎༻♱༺༒︎⊰‿̩͙ 
 
 <img width="99" height="56" alt="j17" src="https://github.com/user-attachments/assets/2606dfe1-addc-487d-9baa-70e10dca2fbf" />
 <img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/f2be9df8-f6e4-4beb-a1a2-c5863a07c42b" />
@@ -28,6 +28,8 @@
 <img width="101" height="57" alt="i32" src="https://github.com/user-attachments/assets/7a30dde9-b286-4076-a3d6-60fd684e98d9" />
 <img width="99" height="57" alt="i6" src="https://github.com/user-attachments/assets/a23c2d92-fe73-4a4e-8d0d-d1a781033391" />
 <img width="99" height="56" alt="i28" src="https://github.com/user-attachments/assets/174df915-79e0-426c-962a-4bb27c7a8e14" />
+
+  ⋆༺𓆩☠︎︎𓆪༻⋆
 
   </details>
 </div>
@@ -63,6 +65,8 @@
 <img width="150" height="20" alt="z21" src="https://github.com/user-attachments/assets/0ec24a68-cffc-48e3-a20e-881a15f7e913" />
 <img width="150" height="20" alt="z15" src="https://github.com/user-attachments/assets/2f7d5085-379c-44af-8106-ff367fb1d486" />
 <img width="150" height="20" alt="v5" src="https://github.com/user-attachments/assets/eb332e5b-5c1c-46e6-9ab9-4443a015371a" />
+
+ ⋆༺𓆩☠︎︎𓆪༻⋆ 
 
   </details>
 </div>
