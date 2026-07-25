@@ -5,11 +5,6 @@
 </p> <p align="center"> <img width="900" height="55" alt="glitterstrawberries" src="https://github.com/user-attachments/assets/8b0deab8-f029-419d-9216-c885abc61749" /> </p>
 
 
-°⊹ ࣪ ˖      
-<p align="center">࣪ ִֶָ†.⊹ ࣪ ˖ </p>
-~  <p align="right"> ᛝᛝ </p>
-
-
 <p align="center"> <img width="55" height="18" alt="a69" src="https://github.com/user-attachments/assets/851409b2-5f86-43c1-8f0e-3a3aecb0a3d2" /> <img width="55" height="18" alt="a112" src="https://github.com/user-attachments/assets/d5ebc4f1-23a8-4f2f-8d16-dc302da80a8b" />
 <img width="55" height="18" alt="a32" src="https://github.com/user-attachments/assets/a0986465-d743-4a7e-aec1-3b6dd63a73f7" />
 <img width="55" height="18" alt="a75" src="https://github.com/user-attachments/assets/25438a99-3dce-4494-b9cd-af83754fef71" />
@@ -20,8 +15,6 @@
 
  </p>
 
-  𓏵‧₊˚ ┊
-  
 <table align="center">
   <tr>
     <td>
@@ -29,9 +22,6 @@
     </td>
   </tr>
 </table>
-
-
-  ⊹ ࣪ ˖ᛝ
 
 
 <p align="center"> ´ཀ` </p> 
@@ -142,29 +132,15 @@
 
   </details>
 </div>
-<p align="right"> ⊹ ࣪ ˖  ﾒ  </p>
 
 <div align="center"> 
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=false&background_color=1c0500&interchange=false&profanity=false&hide_remaster=false&bar_color=d14600&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
+</div>
 
- </div>
-ﾒ.⋆♱     <p align="right"> ╋━ </p>
-<p align="center"> ✮⋆˙ ☠︎︎ ⋆₊ ♱ ˚˖𓍢ִ໋ </p>
-
-×                            𓏲 ๋࣭ ࣪ ˖
-
-<p align="center"> <img width="900" height="25" alt="firedivider" src="https://github.com/user-attachments/assets/1a987ebf-cf0b-44b9-80c2-87f6c43a43d4" /> </p> <p align="center">
-    <img width="900" height="60" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
+<img width="900" height="60" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
   </p> <p align="center">
   <img width="910" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
 </p>
-
-
-
-
-
-
-
 
 
