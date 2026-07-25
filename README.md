@@ -1,9 +1,7 @@
 <p align="center">
-  <img width="910" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
+  <img width="420" height="9" alt="redpingdivider" src="https://github.com/user-attachments/assets/74539e2c-2856-4ee1-b6d9-57f6791514b7" />
 </p> <p align="center">
-  <img width="900" height="60" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
-</p> <p align="center"> <img width="900" height="55" alt="glitterstrawberries" src="https://github.com/user-attachments/assets/8b0deab8-f029-419d-9216-c885abc61749" /> </p>
-
+  <img width="420" height="50" alt="postal2player" src="https://github.com/user-attachments/assets/ae9283fc-ac68-41f4-b4d2-3fa5cb5c2f0e" /> 
 
 <p align="center"> <img width="55" height="18" alt="a69" src="https://github.com/user-attachments/assets/851409b2-5f86-43c1-8f0e-3a3aecb0a3d2" /> <img width="55" height="18" alt="a112" src="https://github.com/user-attachments/assets/d5ebc4f1-23a8-4f2f-8d16-dc302da80a8b" />
 <img width="55" height="18" alt="a32" src="https://github.com/user-attachments/assets/a0986465-d743-4a7e-aec1-3b6dd63a73f7" />
@@ -18,7 +16,7 @@
 <table align="center">
   <tr>
     <td>
-      <video src="https://github.com/user-attachments/assets/4ff4a3ef-c254-4596-a0c1-ac3106e19ebc" width="100%" controls></video>
+      <img width="400" height="225" alt="HUGS!" src="https://github.com/user-attachments/assets/56c56522-6b75-4398-b585-aa1d782e32da" />
     </td>
   </tr>
 </table>
@@ -137,10 +135,11 @@
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=false&background_color=1c0500&interchange=false&profanity=false&hide_remaster=false&bar_color=d14600&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
 </div>
-
-<img width="900" height="60" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
+</p> <p align="center"> <img width="420" height="45" alt="glitterstrawberries" src="https://github.com/user-attachments/assets/8b0deab8-f029-419d-9216-c885abc61749" /> </p>
+<p align="center">
+  <img width="420" height="50" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
   </p> <p align="center">
-  <img width="910" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
+  <img width="420" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
 </p>
 
 
