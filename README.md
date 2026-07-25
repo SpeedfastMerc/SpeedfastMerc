@@ -20,11 +20,19 @@
 
  </p>
 
- 
-<p align="center">
- 𓏵‧₊˚ ┊ <img width="310" height="250" alt="Untitled274_20260722202401" src="https://github.com/user-attachments/assets/62cbdb82-d122-4ec0-8a0e-f96ce3fca3bc" /> 
+  𓏵‧₊˚ ┊
+  
+<table align="center">
+  <tr>
+    <td>
+      <video src="https://github.com/user-attachments/assets/4ff4a3ef-c254-4596-a0c1-ac3106e19ebc" width="100%" controls></video>
+    </td>
+  </tr>
+</table>
+
+
   ⊹ ࣪ ˖ᛝ
-</p>
+
 
 <p align="center"> ´ཀ` </p> 
 
@@ -151,4 +159,12 @@
   </p> <p align="center">
   <img width="910" height="22" alt="blooddivider" src="https://github.com/user-attachments/assets/ff2e0cac-d43f-4587-a798-9bb8811e0f20" />
 </p>
+
+
+
+
+
+
+
+
 
