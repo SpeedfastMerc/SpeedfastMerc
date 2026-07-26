@@ -19,9 +19,9 @@
 </div> 
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/7c7f0b06-6e25-4bec-a0d6-6023131e6193">
-    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/7c7f0b06-6e25-4bec-a0d6-6023131e6193">
-    <img width="600" height="500" alt="Untitled283_20260727000357" src="https://github.com/user-attachments/assets/7c7f0b06-6e25-4bec-a0d6-6023131e6193" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/a49d0ee7-cc4d-451d-a60b-ee99dd539bc4">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/a49d0ee7-cc4d-451d-a60b-ee99dd539bc4">
+    <img width="480" height="285" alt="Untitled283_20260727000357" src="(https://github.com/user-attachments/assets/a49d0ee7-cc4d-451d-a60b-ee99dd539bc4)" />
   </picture>
 </p>
 
