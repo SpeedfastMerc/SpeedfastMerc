@@ -19,9 +19,9 @@
 </div> 
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/a49d0ee7-cc4d-451d-a60b-ee99dd539bc4">
-    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/a49d0ee7-cc4d-451d-a60b-ee99dd539bc4">
-    <img width="480" height="300" alt="Untitled283_20260727000357" src="(https://github.com/user-attachments/assets/a49d0ee7-cc4d-451d-a60b-ee99dd539bc4)" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/e1edfe2f-efdf-4a8f-a1aa-fa30206a9c34">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/e1edfe2f-efdf-4a8f-a1aa-fa30206a9c34">
+    <img width="505" height="340" alt="Untitled283_20260727000357" src="https://github.com/user-attachments/assets/e1edfe2f-efdf-4a8f-a1aa-fa30206a9c34" />
   </picture>
 </p>
 
@@ -33,3 +33,4 @@
 <p align="center"> <img width="150" height="20" alt="a48" src="https://github.com/user-attachments/assets/3523a346-86d7-4b80-8c8a-f87de24318e5" />
 <img width="150" height="20" alt="a73" src="https://github.com/user-attachments/assets/6dc5024d-2c09-49b3-809c-e11970eab429" />
 <img width="150" height="20" alt="a77" src="https://github.com/user-attachments/assets/395665dd-9cc0-4f69-92f3-2a915b4b41a5" /> </p>
+
