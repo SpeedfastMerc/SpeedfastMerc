@@ -132,7 +132,6 @@
   
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=false&background_color=1c0500&interchange=false&profanity=false&hide_remaster=false&bar_color=d14600&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
 </div>
-</p> <p align="center"> <img width="420" height="45" alt="glitterstrawberries" src="https://github.com/user-attachments/assets/8b0deab8-f029-419d-9216-c885abc61749" /> </p>
 <p align="center">
   <img width="420" height="50" alt="allhopeisgone" src="https://github.com/user-attachments/assets/6455f6a3-acb7-47f8-aa3e-af08638b6893" />
   </p> <p align="center">
