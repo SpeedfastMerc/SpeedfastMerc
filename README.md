@@ -17,6 +17,6 @@
     
    $${\color{#e83c1e}(Ringoramaz\space is\space really\space stinky)}$$ 
    
-   $${\color{#ff8c4a}Thanks\space for\space checking\space out\space my\space Github!\space I'll\space make\space sure\space to\space add\space cooler\space things\space here!\space}$$ </details>
+   $${\color{#8f8282}Thanks\space for\space checking\space out\space my\space Github!\space I'll\space make\space sure\space to\space add\space cooler\space things\space here!\space}$$ </details>
 </div>
 
