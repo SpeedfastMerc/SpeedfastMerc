@@ -21,9 +21,6 @@
   </tr>
 </table>
 
-
-<p align="center"> ´ཀ` </p> 
-
 <div align="center">
   <details>
     <summary><font color="red"><b>× 𝚂𝚝𝚊𝚖𝚙𝚜 ×</b></font></summary>
