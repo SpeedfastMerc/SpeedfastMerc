@@ -22,7 +22,7 @@
     
    $${\color{#e83c1e}(M/W\space the\space biggest\space fruitcake,\space Ringoramaz)}$$
    
-   $${\color{#b03200}Interacting\space and\space C×H\space is\space encouraged,\space talk\space to\space me\space about\space my\space current\space skin\space or\space something,\space it's\space not\space like\space i'll\space bite.\space}$$ 
+   $${\color{#b03200}INT\space and\space C×H\space is\space encouraged,\space talk\space to\space me\space about\space my\space current\space skin\space or\space whatever,\space it's\space not\space like\space i'll\space bite.\space}$$ 
    
    $${\color{#812eab}Not\space very\space many\space DNI's,\space just\space don't\space be\space a\space fuckin'\space disgustingly\space depraved\space loser,\space thanks.}$$ </details>
 </div> 
