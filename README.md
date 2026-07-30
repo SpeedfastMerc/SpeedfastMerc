@@ -1,21 +1,23 @@
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/06e66cf1-eebd-4c33-ab36-57be051d17bd">
-    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/06e66cf1-eebd-4c33-ab36-57be051d17bd ">
-   <img width="80%" height="80%" alt="Untitled285_20260727174935" src="https://github.com/user-attachments/assets/06e66cf1-eebd-4c33-ab36-57be051d17bd" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630">
+   <img width="80%" height="80%" alt="Untitled285_20260727174935" src="https://github.com/user-attachments/assets/3e911912-3c9b-47fa-bd5e-8902d749c630" />
   </picture>
 </p>
 
-
-
-<p align="center"><img width="150" height="20" alt="f46" src="https://github.com/user-attachments/assets/fb15469c-77e9-4093-ad3b-268f5cf42492" />
- <img width="150" height="20" alt="a88" src="https://github.com/user-attachments/assets/71981c7d-8c90-4026-a6a8-5ba8cb4ce9f2" /> <img width="149" height="20" alt="h7" src="https://github.com/user-attachments/assets/17e4281a-f953-4883-a763-753a74d356b0" />
- <img width="150" height="20" alt="h22" src="https://github.com/user-attachments/assets/c1f6c6de-f64a-43fe-99c6-4576a7bb2c91" /><img width="150" height="20" alt="m1" src="https://github.com/user-attachments/assets/df4e9b3b-082f-42ce-aa4f-6bfddcae9c47" /></p>
+<p align="center"> 
+<img width="99" height="56" alt="d28" src="https://github.com/user-attachments/assets/638a6238-3f08-423c-b25b-9817026bb1c3" />
+<img width="99" height="56" alt="d29" src="https://github.com/user-attachments/assets/5997ba2f-e2dc-4313-b331-19d937e2640e" />
+<img width="99" height="56" alt="d87" src="https://github.com/user-attachments/assets/8dd69a1c-409d-4a3d-903d-54f23ac05df4" />
+<img width="99" height="55" alt="d79" src="https://github.com/user-attachments/assets/0df12fe0-17d3-431a-95dd-705ab711143f" />
+<img width="101" height="57" alt="d52" src="https://github.com/user-attachments/assets/11e0fd57-f69d-4552-a508-f2d6b1d9298a" />
+</p>
 
 <div align=center>
   <details> 
     <summary style="color: #9c0202;">$${\color{#9c0202}𝕾𝖎𝖒𝖔𝖓\space 𝖘𝖆𝖞𝖘\space ...}$$
-      <img src="https://github.com/user-attachments/assets/dcbfbfaf-e7ff-423f-b395-cc970d9e4092" alt="Click to expand" width="100">
+      <img src="https://github.com/user-attachments/assets/428312d8-afc1-4923-8a6b-1ce2b2b1da94" alt="Click to expand" width="100">
   </summary> 
    
    $${\color{#474343}—}$$
@@ -30,9 +32,9 @@
  
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/8d6698e0-5a1c-4132-88ff-418dcd948e79">
-    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/8d6698e0-5a1c-4132-88ff-418dcd948e79 ">
-   <img width="80%" height="80%" alt="Untitled284_20260727173017_edit_106568121869154" src="https://github.com/user-attachments/assets/8d6698e0-5a1c-4132-88ff-418dcd948e79" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/c528d619-051c-49da-957a-6aa2104f8a34">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/c528d619-051c-49da-957a-6aa2104f8a34">
+   <img width="80%" height="80%" alt="Untitled284_20260727173017_edit_106568121869154" src="https://github.com/user-attachments/assets/c528d619-051c-49da-957a-6aa2104f8a34" />
   </picture>
 </p>
 
@@ -41,17 +43,18 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=true&background_color=170810&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
 </div>
 
-<p align="center"><img width="150" height="20" alt="f79" src="https://github.com/user-attachments/assets/31af9d0d-50d3-4ce1-a5e7-f8605dcbdb16" />
-<img width="150" height="20" alt="a48" src="https://github.com/user-attachments/assets/3523a346-86d7-4b80-8c8a-f87de24318e5" />
-<img width="150" height="20" alt="a73" src="https://github.com/user-attachments/assets/6dc5024d-2c09-49b3-809c-e11970eab429" />
-<img width="150" height="20" alt="a77" src="https://github.com/user-attachments/assets/395665dd-9cc0-4f69-92f3-2a915b4b41a5" /><img width="150" height="20" alt="f82" src="https://github.com/user-attachments/assets/0942d074-df8b-4d6b-93ee-9e86e7f0b1f2" />
+<p align="center">
+  <img width="150" height="20" alt="h39" src="https://github.com/user-attachments/assets/c175d918-5199-443a-9da2-dd537da3977d" />
+<img width="150" height="20" alt="h8" src="https://github.com/user-attachments/assets/8f9ba4aa-1d3e-4564-ac42-303e2ed51dd6" />
+<img width="150" height="20" alt="a91" src="https://github.com/user-attachments/assets/7e91c235-2354-4f31-aa48-e38031a4f770" />
+<img width="150" height="20" alt="a71" src="https://github.com/user-attachments/assets/3b406e4d-4d4b-4cda-a751-66a8e54c0f92" />
+<img width="150" height="20" alt="n2" src="https://github.com/user-attachments/assets/27b16407-5233-4987-8e2b-ee6f52b1e29c" />
 </p>
 
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/1fc43691-2fdb-40ce-98cd-e2b36a7d7c8a">
-    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/1fc43691-2fdb-40ce-98cd-e2b36a7d7c8a">
-   <img width="80%" height="80%" alt="Untitled285_20260727175205_edit_107838309290836" src="https://github.com/user-attachments/assets/1fc43691-2fdb-40ce-98cd-e2b36a7d7c8a" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded">
+    <source media="(prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded">
+   <img width="80%" height="80%" alt="Untitled285_20260727175205_edit_107838309290836" src="https://github.com/user-attachments/assets/15479964-4288-4a90-aef8-68bcac2bbded" />
   </picture>
 </p>
-
