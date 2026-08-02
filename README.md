@@ -24,7 +24,9 @@
     
    $${\color{#e83c1e}"I\space have\space mental\space eelness."\space ⛦\space (M/W\space the\space biggest,\space chunkiest\space fruitcake\space @Ringoramaz)}$$
    
-   $${\color{#ff5805}INT\space and\space C×H×K\space is\space encouraged,\space and\space I\space have\space a\space very\space inconsistent\space style\space when\space making\space ponies\space so\space don't\space be\space surprised\space if\space they\space seem\space drastically\space different\space from\space eachother.}$$ 
+   $${\color{#ff5805}INT\space and\space C×H×K\space is\space encouraged,\space I\space (probably)\space won't\space bite\space you<3}$$ 
+
+   $${\color{#e6aec4}Note:\space I\space have\space a\space very\space inconsistent\space style\space when\space making\space ponies\space so\space don't\space be\space surprised\space if\space they\space seem\space drastically\space different\space from\space eachother.}$$ 
    
    $${\color{#ff000}Not\space very\space many\space DNI's,\space just\space don't\space be\space a\space depraved\space loser\space and\space don't\space be\space in\space problematic\space fandoms\space thanks.}$$ </details>
 </div> 
