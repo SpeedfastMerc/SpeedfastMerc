@@ -22,7 +22,7 @@
    
    $${\color{#474343}—}$$
     
-   $${\color{#e83c1e}(M/W\space the\space biggest\space fruitcake,\space Ringoramaz)}$$
+   $${\color{#e83c1e}"I\space have\space mental\space eelness."\space ⛦\space (M/W\space the\space biggest,\space chunkiest\space fruitcake\space @Ringoramaz)}$$
    
    $${\color{#ff5805}INT\space and\space C×H\space is\space encouraged,\space and\space I\space have\space a\space very\space inconsistent\space style\space when\space making\space ponies\space so\space don't\space be\space surprised\space if\space they\space seem\space differently\space colored.}$$ 
    
