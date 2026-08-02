@@ -26,7 +26,7 @@
    
    $${\color{#ff5805}INT\space and\space C×H\space is\space encouraged,\space talk\space to\space me\space about\space my\space current\space skin\space or\space whatever,\space it's\space not\space like\space i'll\space bite.\space}$$ 
    
-   $${\color{#ff000}Not\space very\space many\space DNI's,\space just\space don't\space be\space a\space fuckin'\space disgusting,\space depraved\space loser,\space thanks.}$$ </details>
+   $${\color{#ff000}Not\space very\space many\space DNI's,\space just\space don't\space be\space a\space depraved\space loser\space and\space don't\space be\space in\space problematic\space fandoms\space thanks.}$$ </details>
 </div> 
 
  
