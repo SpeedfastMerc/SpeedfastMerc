@@ -24,7 +24,7 @@
     
    $${\color{#e83c1e}"I\space have\space mental\space eelness."\space ⛦\space (M/W\space the\space biggest,\space chunkiest\space fruitcake\space @Ringoramaz)}$$
    
-   $${\color{#e83c1e}𝐈𝐍𝐓\space and\space 𝐂+𝐇+𝐊\space is\space 𝑬𝑵𝑪𝑶𝑼𝑹𝑨𝑮𝑬𝑫,\space I\space (probably)\space won't\space bite\space you.}$$ 
+   $${\color{#e83c1e}𝐈𝐍𝐓\space and\space 𝐂+𝐇\space is\space 𝑬𝑵𝑪𝑶𝑼𝑹𝑨𝑮𝑬𝑫,\space I\space (probably)\space won't\space bite\space you.}$$ 
    
    $${\color{#ff5805}(Note:\space Using\space terms\space of\space endearment\space (e.g.,\space babe\space or\space love)\space in\space a\space 𝑪𝑶𝑴𝑷𝑳𝑬𝑻𝑬𝑳𝒀\space 𝑷𝑳𝑨𝑻𝑶𝑵𝑰𝑪\space manner\space is\space a\space habit\space of\space mine,\space so\space please\space tell\space me\space if\space that\space makes\space you\space uncomfortable\space before\space interacting.)}$$
 
