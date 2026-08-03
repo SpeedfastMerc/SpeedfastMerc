@@ -42,7 +42,11 @@
 
 <div align="center">
   
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=novatorem&show_offline=true&background_color=170810&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true)
+<p align="center">
+  <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&redirect=true">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312bxrteddcsrv3ndfvgvgrehfei&cover_image=true&theme=natemoo-re&show_offline=true&background_color=2b0000&interchange=false&profanity=false&hide_remaster=false&bar_color=ff0000&bar_color_cover=false">
+  </a>
+</p>
 </div>
 
 <p align="center">
